@@ -1,3 +1,1 @@
-# shreyash-
-
-#hello world
+# Positive, unorthodox , love & peace
